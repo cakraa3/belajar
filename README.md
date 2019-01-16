@@ -1,1 +1,1 @@
-# belajar
+ini adalah pembelajaran pertama
